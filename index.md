@@ -18,5 +18,5 @@ Capt. Howard:
 > I've got a Police Commissioner so far up my ass, 
 > if he spits it's coming out of my mouth. 
 
-<img src="https://en.wikipedia.org/wiki/File:Bad_boys_two.jpg"/>
+<img src="https://upload.wikimedia.org/wikipedia/en/d/d0/Bad_boys_two.jpg"/>
 
